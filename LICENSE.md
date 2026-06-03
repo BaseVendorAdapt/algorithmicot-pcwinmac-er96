@@ -1,4 +1,4 @@
-# 
+# أفضل algorithmic trading bot قوالب لـ Mac OS | آلي algorithmic trading bot قوالب لـ PC Windows. مع تحكيم مثلثي و تبادل الرموز — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
